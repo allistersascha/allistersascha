@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **allistersascha@gmail.com**
 
-- ⚡ Fun fact **I love experimental electronic music!**
+- ⚡ Fun fact **I love camping!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
